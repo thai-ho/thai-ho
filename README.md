@@ -4,4 +4,4 @@
 
 🧑🏻‍💻 Check out my [projects](https://www.hhthai.space/all-projects) to see what I've built so far.
 
-☎️ Feel free to connect with me on [LinkedIn](www.linkedin.com/in/hhthai1807) or send me an email at [hhthai1807@gmail.com](mailto:hhthai1807@gmail.com)
+☎️ Feel free to connect with me on [LinkedIn↗](www.linkedin.com/in/hhthai1807) or send me an [email↗](mailto:hhthai1807@gmail.com)
