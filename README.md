@@ -1,4 +1,4 @@
-### Hi there, I'm Thai 👋
+### Hello there
 
 I'm currently working on [Cake Digital Bank ↗](https://www.cake.vn) as a Front-end Developer.
 
